@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Tarot
+* Jazz & Techno Music
+* Zen Meditation
+* Climbing trees
+* baking, cooking & eating
