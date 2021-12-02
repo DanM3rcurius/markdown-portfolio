@@ -1,3 +1,4 @@
+## 👀 on Dan
 * **Ability** to *focus* for longer than a netflix episode; interface *between engineers and product*
 * Esoteric **knowledge** about *Tarot*, *hermetic traditions*,   
 * **I** expressed **in patterns** 
